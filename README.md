@@ -8,7 +8,7 @@ Nicknames are very welcome!
 
   ↳ I'm a rather sensitive/emotional person. I am usually rude to my friends for fun (notify if uncomf with it pls!), sarcasm, dry humor welcomed! ˚ · .
 
-    ₊⊹ very clingy (if uncomf please ask first to cuddle/hug)
+   ₊⊹ very clingy (if uncomf please ask first to cuddle/hug)
 
 ────────────────────────────
 
