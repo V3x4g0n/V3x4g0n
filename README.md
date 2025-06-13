@@ -1,10 +1,12 @@
 ─── ⋆⋅☆⋅⋆ ────
 Nicknames are very welcome!
 ────────────────────────────
- ╰┈➤. Hey there! I don't bite, feel free to int! c+h is very appreciated. All ships can freely int<3
+ ╰┈➤. Hey there! I don't bite, feel free to int! c+h is very appreciated. All ships can freely int<3 + multishipper!
   ↳ I'm a rather sensitive/emotional person. I am usually rude to my friends for fun (notify if uncomf with it pls!), sarcasm, dry humor welcomed! ˚ · .
+     ₊⊹ very clingy (if uncomf please ask first to cuddle/hug)
 ────────────────────────────
-Genderfluid, pansexual, asexual! 
-![image](https://github.com/user-attachments/assets/4038ebfb-4eb7-4fc0-a66e-06b8fe65640c)
-![image](https://github.com/user-attachments/assets/404b966d-a711-4ea5-a2ad-abce54833d75)
+Genderfluid, pansexual, asexual ,,
+────────────────────────────
+kins; Lingyang(WUWA)
+hvykins; Chance,1x4 (FSK), Tyler Hernandez (SBG)
 
